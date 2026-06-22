@@ -51,6 +51,6 @@ Leadership & Communication Activities
 
 Bachelor of Technology in Computer Science Engineering
 
-📞 Contact
+📞 Contact 9921271420
 
 Professional contact details and social profiles.
